@@ -74,7 +74,5 @@ Ne rezervăm dreptul de a modifica această politică periodic. Vă recomandăm 
 
 ## 8. Contact
 
-Pentru orice întrebare legată de confidențialitate, ne puteți contacta la:
-E-mail: contact@aham.ro
-Adresă: Str. Exemplu nr. 10, București, Romania
+Pentru orice întrebare legată de confidențialitate, ne puteți contacta la adresa de e-mail: contact@aham.ro
 
