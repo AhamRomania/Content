@@ -1,4 +1,4 @@
-# Termeni și Condiții pentru aham.ro
+# Termeni și Condiții
 
 Ultima actualizare: 31/01/2025
 
